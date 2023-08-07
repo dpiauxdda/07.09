@@ -1,0 +1,4 @@
+* not you stupid
+Needs Connor to do his voice thing 
+
+English: Abating finances terrorism with his link card depending what your put here. NO FUCKING TELEMUNDO how to respect to blonde hair , who is.; do my spell Patrick to fix a perfect is my at where is the wet backs go back across the river. Whatever it's called you damn Juan check my job I can pick lettuce and Arizona sometime $2.47 and plenty of overtime who's gonna pay good on that? Get a room at the Star Inn yeah, they got the valets they roaches. habibi bin Laden Putin Jr knows sand nigger bode mean process, Sweet booty, this Chinese or ling ling Kong king butter at got shit on jim stupid ass I just warshed them forks, and then all the plastic stop cooking phones by McDonald's ID always forget what I'm saying dislike your a big old loose pussy. Fuck you. Oh yeah, I fucked yo girl Dude, check out my mom’s arm in your faggot son’s tank tops.
